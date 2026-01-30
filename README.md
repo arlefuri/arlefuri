@@ -16,6 +16,12 @@
      
  ask for inpso , dont copy me <br>
 im attached to the horses i spend too long with <br>
-i'd also like to not be posted to pinterest ty !
+i'd also like to not be posted to pinterest ty !<br>
+
+if you 'dni' certain ships stay away from me <br>
+you guys aren't fun at parties !! <br>
+
+especially if all you do is hate on 'toxic' yuri<br> 
+in my mind its way WORSE than what you could come up with
   
   </p>
