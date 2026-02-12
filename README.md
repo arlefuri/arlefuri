@@ -21,5 +21,4 @@ i don't really prefer to interact with others<br>
 
 i <3 toxic yuri, all boys are girls to me btw <br> 
 #1 twink hater unless girl is put infront of it <br> 
-  
   </p>
