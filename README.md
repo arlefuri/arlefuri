@@ -10,17 +10,16 @@
     <img src="https://i.postimg.cc/VNMB1J31/tumblr-abb71039ae9a33396cee37ba25e5c195-0e954696-540.png" width="300" alt="Image 1" style="margin-right: 5px; vertical-align: middle;" />
   </p>
    <p>
- minors + dramatic antis dni , idc for online discourse <br> 
-  usually afk or offtab, whisps are preferred  <br>
+PROFIC/PROSHIP this is your only warning <br> 
+block over harrasing, online arguments are boring  <br>
      
 ask for inpso , dont copy me <br>
-im attached to the horses i spend too long with <br>
 i'd also like to not be posted to pinterest ty !<br>
 
-block over harrasing, online arguments are boring <br>
-i don't go out of my way to interact with others <br>
+ mostly sit with my wife <br>
+i don't really prefer to interact with others<br>
 
 i <3 toxic yuri, all boys are girls to me btw <br> 
-
+#1 twink hater unless girl is put infront of it <br> 
   
   </p>
