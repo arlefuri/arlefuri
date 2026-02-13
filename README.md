@@ -17,7 +17,7 @@ ask for inpso , dont copy me <br>
 i'd also like to not be posted to pinterest ty !<br>
 
  mostly sit with my wife <br>
-i don't really prefer to interact with others<br>
+i don't really interact with others<br>
 
 i <3 toxic yuri, all boys are girls to me btw <br> 
 #1 twink hater unless girl is put infront of it <br> 
